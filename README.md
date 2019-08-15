@@ -1,2 +1,2 @@
 # aquazomby.io
-stealing bens shit lmao
+god's gift
