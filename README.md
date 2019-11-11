@@ -1,2 +1,1 @@
-# aquazomby.io
-god's gift
+# aquazomby.github.io
